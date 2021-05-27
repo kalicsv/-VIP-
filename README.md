@@ -1,1 +1,1 @@
-#全网各平台_vip_视频免费解析，免费看n n请注意:这发行版只是个人吴兆钢完全遵循许可证开发标准n全网各平台下载VIP播放器网页版.html文件，然后使用浏览器打开即可使用：http://connie.freevar.com/    n n无需安装n#也可以直接访问.n n我认为人生最美好的主旨和人类生活最幸福的结果n完全遵循，.：https://github.com/kalicsv/-VIP-/blob/master/LICENSE n许可证-GNU工程-自由软件基金会：https://www.gnu.org/licenses/licenses.html
+#全网各平台_vip_视频免费解析，免费看n n请注意:这发行版只是个人吴兆钢完全遵循许可证开发标准n全网各平台下载vip播放器网页版.html文件，Http://connie.freevar.com/n n无需安装n#也可以直接访问.N我认为人生最美好的主旨和人类生活最幸福的结果n完全遵循n许可证-GNU工程-自由软件基金会：https://www.gnu.org/licenses/licenses.html
